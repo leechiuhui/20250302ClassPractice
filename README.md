@@ -22,7 +22,7 @@
 我的初心是將療癒帶入生活，讓藝術與自然成為每個人心靈的依靠，並用愛與信任陪伴每一位來到這裡的旅人。願我們都能在這片時光裡，找到屬於自己的安然與力量。]
 媒體報導Caca：https://cacaomag.co/innterval/
 媒體報導Alive:https://alive.businessweekly.com.tw/single/Index/ARTL006003122
-*   Github 帳號：[]
+*   Github 帳號：[legoodday]
 
 ### 學員3[您的姓名]
 
